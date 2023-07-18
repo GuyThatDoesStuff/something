@@ -9,8 +9,10 @@ This program will help you sleep better
 4. **clear** your mind
 5. you will eventually fall _alseep_
 
-## Better instructions
+## Better Instructions
 
 1. Watch Youtube until you are too tired and then you pass out
 
+## Better Better Instructions
 
+1. Watch Tik Tok until you only get the Tik Toks that tell you to go to bed or stop scrolling.
